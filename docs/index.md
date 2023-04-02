@@ -108,6 +108,7 @@ January 2022 - March 2022
 ## Honors
 - Spring 2020 Dean's List
 - Fall 2021 Dean's List
+- Spring 2021 Dean's List
 
 <!-- ### Footer
 
